@@ -47,5 +47,7 @@ Slot Gopay menyiapkan customer service setia yang bisa anda contact melalui menu
 Oleh karena itu, tidak perlu ragu untuk menghubungi customer service setia kapan saja anda butuhkan. Karena customer service kami yang ramah dan profesional akan langsung memberikan solusi untuk tangani semua masalah yang anda temukan.
 
 Untuk Informasi Lebih Lengkap Kunjungi juga
-[Slot deposit LinkAja](https://atom.io/)
-[Slot 4D Gacor Terbaru](https://atom.io/)
+[Slot deposit LinkAja](https://atom.io/themes/slot-linkaja-gacor-maxwin)
+[Slot deposit LinkAja](https://atom.io/packages/slot-linkaja-gacor-maxwin)
+[Slot 4D Gacor Terbaru](https://atom.io/themes/slot4d-gacor-maxwin)
+[Slot 4D Gacor Terbaru](https://atom.io/packages/slot4d-gacor-maxwin)
